@@ -49,9 +49,9 @@ Use your weaknesses as opportunities to trust and value others.
 Your ability to effectively work in a team begins with your capacity
 to genuinely trust and appreciate your teammates. The more awareness
 you have of your own weaknesses, the more opportunities you have to
-empower your teammates. The more you resist the urge to offer
-half-thought-out opinions, the more weight your words will carry.
-Before offering any feedback, ask yourself as critically as you
-possibly can, "Will it really materially matter if my advice about
-this isn't taken?" Whenever the answer is "no," refrain from saying
-anything.
+empower others. The more you resist the urge to offer half-thought-out
+opinions, the more weight your words will carry. Before offering any
+feedback, ensure that it is important enough to justify the work
+required to address it. Consider it a victory when you are able to
+make room for someone else's creativity and personal style to develop
+alongside your own.
